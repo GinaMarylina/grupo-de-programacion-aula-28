@@ -5,7 +5,7 @@ estos son los integrantes
 *Barby gomez
 *Diego gimenez
 *facuu
-*Gina
+*Gina Gomez
 *Maru
 *Melisa Gimenez
 *Nati ruiz
